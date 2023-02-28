@@ -1,1 +1,0 @@
-# escola-informatica-images
